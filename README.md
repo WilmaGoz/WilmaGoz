@@ -1,5 +1,7 @@
-## Hello, Wilma here!
-[LinkedIn](https://www.linkedin.com/in/wilma-gozun-b44952359)
+### **Hello, Wilma here!**
+
+**Find me at**<br/>
+[LinkedIn](https://www.linkedin.com/in/wilma-gozun-b44952359) and **
 <!--
 **WilmaGoz/WilmaGoz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
