@@ -1,5 +1,5 @@
 ### **Hello, Wilma here!**
-Current Computer Engineering student at CSULB. Had a taste of CS in elementary, and have loved it ever since. Looking to grow and connect with others.<br/>
+Looking forward to learning and connecting with others!<br/>
 **Find me at**
 *[My LinkedIn](https://www.linkedin.com/in/wilma-gozun-b44952359)* and *wilma.m.goz@gmail.com*
 
